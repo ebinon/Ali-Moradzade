@@ -8,3 +8,5 @@ Freelancer’s Name: Ali Moradzade
 Collaboration Platform: in telegram
 
 update soon
+If you are proficient in Persian, we have displayed all the documentation on our Telegram channel. You can find everything related to this topic in our Telegram channel.  
+@ali_moradzade1379
